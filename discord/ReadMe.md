@@ -1,5 +1,4 @@
-# Haio!
-### I'm Jennie Bell, or 'sleepingisforlosers.'
+# Haio! I'm Jennie Bell, or 'sleepingisforlosers.'
 * Pings are highly preferred, and DM's are open!
 	* Be substancial and tell me what you need. I hardly respond to 'Hey' or 'Hello.'
 
