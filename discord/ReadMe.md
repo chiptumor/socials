@@ -19,4 +19,5 @@ If you do join, **please be respectful and use common sense. Make sure your prof
 * [:JEretweet:](https://cdn.discordapp.com/emojis/1314769671005802587.png)
 * [:JEtomato:](https://cdn.discordapp.com/emojis/1314766349293195264.png)
 * [:JEwhoa:](https://cdn.discordapp.com/emojis/1314579492190289971.png)
+
 **I also take suggestions!!** Feel free to drop something in [the suggestions channel](https://discord.com/channels/1255693747488821318/1314719685773627552) and I'll absolutely check it out.
