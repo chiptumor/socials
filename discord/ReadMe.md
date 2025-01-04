@@ -3,10 +3,11 @@ Pings are highly preferred, and DM's are open!
 ###### Be substancial and tell me what you need. I hardly respond to 'Hey' or 'Hello.'
 
 ## You can also find me in other places!:
-* [YouTube](https://youtube.com/@chiptumor)
-	* I make and post chiptune here. I'd be grateful if you checked it out!
-* [Instagram](https://instagram.com/chiptumor)
-	* I post images of my wife--the Zoologist--along with memes I find funny.
+
+[YouTube](https://youtube.com/@chiptumor): I make and post chiptune here. I'd be grateful if you checked it out!
+
+[Instagram](https://instagram.com/chiptumor): I post images of my wife--the Zoologist--along with memes I find funny.
+
 You can also find me on Bluesky (and Twitter) if you look hard enough, but I don't use those too often.
 
 ## [Join my emoji server!](https://discord.gg/jb4b9gwWuH)
