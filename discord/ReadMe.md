@@ -1,6 +1,6 @@
 # Haio! I'm Jennie Bell, or 'chiptumor.'
-* Pings are highly preferred, and DM's are open!
-	* Be substancial and tell me what you need. I hardly respond to 'Hey' or 'Hello.'
+Pings are highly preferred, and DM's are open!
+-# Be substancial and tell me what you need. I hardly respond to 'Hey' or 'Hello.'
 
 ## You can also find me in other places!:
 * [YouTube](https://youtube.com/@chiptumor)
